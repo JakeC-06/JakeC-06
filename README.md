@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JakeC-06
+- 👋 Hi, I’m @JakeC-06. I am a Web and FiveM Developer.
 
 - 👀 I’m Interested In FiveM / GTA V RP And Normal GTA 5 With LSPDFR
 
